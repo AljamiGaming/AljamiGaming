@@ -16,5 +16,5 @@ If you want to play with me, feel free to dm me through my Instagram.
 My hobbies: 
  - Hitting the gym
  - Meditating
- - Waching Animes
+ - Watching Animes
  - Coding
