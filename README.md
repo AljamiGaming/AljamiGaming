@@ -1,16 +1,20 @@
-## Hi there 👋
+## Hey there 👋
 
-<!--
-**AljamiGaming/AljamiGaming** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm Aljami, a rhythm gamer made in Vietnam.
 
-Here are some ideas to get you started:
+I mainly play Osu! Mania but I play other games as well.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I'm currently learning coding and Chinese that helps me to build connections.
+
+I really love Math because it helps me to build problem solving skill.
+
+I really love Animes and cartoons like "Chained Soldier", "Doraemon", etc.
+
+If you want to play with me, feel free to dm me through my Instagram.
+(In case I'm too busy, I will let you know through that so don't worry)
+
+My hobbies: 
+ - Hitting the gym
+ - Meditating
+ - Waching Animes
+ - Coding
